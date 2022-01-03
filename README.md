@@ -1,1 +1,0 @@
-# anton-petrov.github.io
